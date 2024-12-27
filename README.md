@@ -1,3 +1,3 @@
 ## Hello World! 👋
 
-![image](https://github.com/user-attachments/assets/4cb423a7-a488-4ac7-83e7-29ecaa1b5a72)
+![mona-whisper](https://github.com/user-attachments/assets/9318c6c7-572b-4611-845a-4e59cb7b77cf)
